@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi  👋
 
 
 <h1>I am Nitin Kurdia</h1>
